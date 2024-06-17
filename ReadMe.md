@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudante de Analista de Sistemas, estou a procura de estágio ou emprego.
+Desenvolvedor Web. Entusiasta por aprender eu busco vagas em Desenvolvimento Web.
 
 
 ## 🌐 Socials:
