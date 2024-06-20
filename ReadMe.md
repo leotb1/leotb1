@@ -1,5 +1,5 @@
 # 💫 About Me:
-Desenvolvedor Web. Entusiasta por aprender eu busco vagas em Desenvolvimento Web.
+Desenvolvedor Web. Entusiasta por aprender e inovar.
 
 
 ## 🌐 Socials:
